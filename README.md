@@ -1,1 +1,3 @@
-![photo_5271771820258431977_x](https://github.com/user-attachments/assets/c58000cd-62f8-4c4e-bc61-f226f450750b)
+
+![taurtis-grian](https://github.com/user-attachments/assets/6a096e1d-b526-4e88-bc66-f031846a0023)
+
